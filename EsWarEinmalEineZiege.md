@@ -129,3 +129,53 @@ noch ein paar hinzu gedichtet.
 > der hatte nen sehr großen Pimmel,  
 > er konnte die Frau'n gut beglücken,  
 > und sprang gern auf ihre Rücken.  
+
+> Es war einmal eine Katze,  
+> die hatte 'ne blutige Tatze.  
+> Sie war in 'nen Nagel getreten,  
+> da half ihr nur Betteln und Beten.  
+
+> Es war einmal eine Möwe,  
+> die dachte, sie wäre ein Löwe.  
+> Gazellen wollte sie reißen,  
+> und konnte doch nicht einmal beißen.  
+
+> Es waren mal zwei Pferde,  
+> die schliefen gern auf nackter Erde.  
+> Im Winter war das sehr kalt,  
+> doch wurden die beiden recht alt.  
+
+> Es war einmal ein Hummer,  
+> der litt unter Liebeskummer.  
+> Er war vernarrt in Charlotte,  
+> doch die war leider 'ne Motte.  
+
+> Es war einmal eine Motte,  
+> die war bekannt als Charlotte.  
+> Sie hat als Verehrer 'nen Hummer,  
+> der machte ihr ganz schön viel Kummer.  
+
+> Es war einmal ein Wurm,  
+> der wohnte in einem Turm,  
+> er träumte von Rittern und Drachen  
+> und fand das selber zum Lachen.  
+
+> Es war einmal ein Urmel,  
+> das hatte 'ne gläserne Murmel,  
+> die rollte es über den Strand,  
+> da versank die Murmel im Sand.  
+
+> Es war einmal ein Maulwurf,  
+> der war ein Meister im Speerwurf.  
+> Darum fuhr er zur Olympiade,  
+> doch dort gewann dann eine Made.  
+
+> Es war einmal ein Hausschaf,  
+> das war den ganzen Tag sehr brav,  
+> doch abends da wird es zum Tier,  
+> Und tanzt und trinkt ganz schön viel Bier.  
+
+> Es war einmal 'ne Zitrone,  
+> die tanzte so gern' oben ohne.  
+> Damit wurde sie sehr bekannt,  
+> und hatte Fans im ganzen Land.  
