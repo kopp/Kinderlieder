@@ -15,13 +15,13 @@ haben wir neben den Strophen aus den Links noch ein paar hinzu gedichtet.
 (gesungen als _der A-Adler_ ... _ein Ra-adler_)  
 
 > Der Sperber, ...  
-> Ist bei den Singles Werber  
+> ist bei den Singles Werber  
 
 > Der Klapperstorch, ...  
-> Singt leise Kinderlieder, horch!  
+> singt leise Kinderlieder, horch!  
 
 > Das Schnabltier, ...  
-> Fragt sich, "was mache ich bloß hier?"  
+> fragt sich, "was mache ich bloß hier?"  
 
 > Der Geier, ...  
 > schenkt bunte Ostereier  
@@ -33,7 +33,7 @@ haben wir neben den Strophen aus den Links noch ein paar hinzu gedichtet.
 > meckert, dass sie nichts sehe (als sähe gesprochen)  
 
 > Der Buchfink, ...  
-> Ist am Buffet und zwar ganz flink.  
+> ist am Buffet und zwar ganz flink.  
 
 > Der alte Schwan, ...  
 > mampft Kuchen mit sei'm letzten Zahn  
