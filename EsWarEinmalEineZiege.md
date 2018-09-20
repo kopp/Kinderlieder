@@ -179,3 +179,28 @@ noch ein paar hinzu gedichtet.
 > die tanzte so gern' oben ohne.  
 > Damit wurde sie sehr bekannt,  
 > und hatte Fans im ganzen Land.  
+
+> Es war einmal ein Hahn,  
+> der schnitzte aus einem Spahn  
+> 'ne Hühnerminiatur,  
+> das war gegen die Natur.  
+
+> Es war einmal ein Huhn,  
+> das hatte nicht viel zu tun.  
+> Es legte jeden Tag ein Ei,  
+> und sonntags dann auch einmal zwei.  
+
+> Es war einmal ein Tieger,  
+> der war ein ganz großer Lieger.  
+> Er lag die ganze Zeit rum,  
+> und Laufen, das fand er dumm.  
+
+> Es war einmal ein Kakadu,  
+> der sagte zu jedem immer "du".  
+> Dann traf er eine hübsche Kakasie,  
+> und fieng an zu siezen, aber nur sie.  
+
+> Es war einmal ein Drache,   
+> der saß in 'ner Tränenlache,  
+> denn er musste weinen vor Lachen,  
+> das konnte man mit ihm leicht machen.  
