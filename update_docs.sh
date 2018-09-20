@@ -7,3 +7,4 @@
 make docs/index.html
 make docs/EsWarEinmalEineZiege.html
 make docs/MeineBiberHabenFieber.html
+make docs/Vogelhochzeit.html

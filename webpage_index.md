@@ -6,3 +6,4 @@ und Mitarbeit (eigene Strophen hinzufügen).
 
 * [Es war einmal eine Ziege](EsWarEinmalEineZiege.html)
 * [Meine Biber haben Fieber](MeineBiberHabenFieber.html)
+* [Die Vogelhochzeit](Vogelhochzeit.html)
